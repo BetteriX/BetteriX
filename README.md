@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @BetteriX
+- 📚 I'm Currently Studing in The University Of Debrecen as a Engineering Informatics
 - 📫 How to reach me szabozsolt430@gmail.com
 
 <!---
